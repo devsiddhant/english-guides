@@ -1,0 +1,133 @@
+---
+title: The Awakening Age
+---
+
+### Understanding the text
+
+  
+
+#### Answer the following questions.
+
+#### a. Who are the people ‘who travel the meridian line’?
+
+The people who travel the meridian line are Nigerians who are grouped after a long civil war. These people are
+suffering from hunger, poverty, unemployment and other facets of their life due to fragments.
+  
+  
+
+#### b. What does the poet mean by ‘a new world’?
+
+The poet means by a 'new world' to the emergence of peace in Nigeria. He implies the power of hope, unity,
+truth, wealth, knowledge, creativity and refers to unified Nigeria by his beautiful words
+  
+  
+
+#### c. How are people connected?
+
+People are connected through the strong bond of hope and optimism derived from history. They have believed in
+their dreams and want to gain the new height of unity and prosperity. The connection is due to strong dedication
+towards optimism.
+  
+  
+
+#### d. What can we gain after our perceptions are changed?
+
+We can gain very different benefits and fields of view after our perceptions are changed. We may get opportunity
+and honesty from our troubles. We may gain harmony, belief, love, integrity, wealth, creativity, wisdom and
+vision by changing our perspectives. The change of perception brings the potentiality of changing views from
+negative to positive and positive to negative aspects.
+  
+  
+
+#### e. How are we benefited by new people?
+
+We are benefited by new people in a variety of ways. Our bond and unity with them help us to reach new heights,
+explore new visions and conduct new missions. We can get happiness, harmony, integrity, knowledge, sincerity,
+discipline, creativity from new people and use them to make a flourishing nation.
+  
+  
+
+#### f. Describe the rhyme scheme of this sonnet.
+
+In the poem, there are seven separate couplets with each of two lines. This sonnet's rhyme scheme is sonorous.
+It provides a rhythmic tone, and each stanza has a rhyming couplet. This sonnet's rhyme scheme is AA BB CC DD EE
+FF GG.
+  
+  
+  
+  
+
+### Reference to the context
+
+  
+
+#### a. What does the poet mean by ‘the awakening age’?
+
+As the word glorifies itself, 'the awakening age' refers to the period when Africans realize and become
+conscious about their situation as well as the time to create their new world. They realise that this is the
+time of peace, harmony, integrity, liberty, happiness, prosperity, unity and creativity amongst the people. They
+strongly believe that their new world will arrive after Nigeria's brutal civil war.
+  
+  
+
+#### b. Why, in your view, have these people ‘lived with poverty’s rage’?
+
+In my view, these people have 'lived with poverty's rage because since a long time before history Africans are
+being exploited by the Americans and Europeans. They did a long injustice to the people of Africa and exploited
+natural resources. Also meanwhile, due to lengthy war in African countries, the political stability was almost
+negligible. As a result of instability, a few strong people gained control of the authority. This further
+resulted in an imbalance in the distribution of natural resources and wealth.
+  
+  
+The people of Africa were beyond knowledge and light. They didn't even know that life exists out of poverty.
+They were also preoccupied with various internal problems like civil war, discrimination, religion, culture,
+ethnicity, philosophy and so on which neglected the suffering of ordinary Nigerians. Thus the poverty's rage had
+been all their life.
+  
+  
+
+#### c. Why does the poet appeal for solidarity among the people?
+
+The poet appeals for solidarity among the people to make a reality out of their hope to form a new world for
+them. He wishes for all Nigeria's unfortunate and poor people to reach the new height of unity, prosperity,
+hope, truth, wisdom, liberty and creativity. He strongly believes that solidarity only and only amongst them can
+help them to overcome challenges and sufferings.
+  
+  
+
+#### d. Does the poet present migration in a positive light? Why? Why not?
+
+Yes, the poet presents migration in a positive light as it helps the people to change their perceptions. Mostly
+the migrants are of the working-age population. Migration helps people to raise their height of acceptance and
+helps to grow their condition to the new state from the past one.
+  
+  
+In the poem also, the poet wishes for them to be unified, smart, prosperous and creative in the new age of
+awakening and appeals for solidarity to create a new world. Most of us have seen that migrants bring skill with
+them. Some bring capital and some bring creativity. They try to craft their ideas, knowledge and learning in
+recipient countries. They also wish to be innovative and contribute.
+  
+  
+
+#### e. Nepal is also known for its economic as well as educational migrants. Have you noticed any change in the perceptions and behaviours of these migrants when they return home from abroad?
+
+Yes, Nepal is known for its economic and educational migrants. The data each year people pursue abroad for
+education and employment. Certainly, I have noticed many changes in the perceptions and behaviours of these
+migrants when they return home. I have noticed the change in their attitude and way of thinking. As a person
+opens in a wide space from the narrow door, he experiences many things, explores many heights, learns, thinks,
+crafts and thus the way of thinking and way of seeing the world is certainly changed. Every worker or student
+brings their gained knowledge and tries to use it in their homeland. If either it is capital gain or a degree
+they try to craft from them. They gain financial literacy and learn to invest and keep the hope of changing
+traditional thoughts and parameters that limits the exploration. These are the different perceptions that I have
+seen of people returning from abroad in my community.
+  
+  
+
+#### f. Relate the rhyme scheme of this sonnet to the kind of life idealized by the poet.
+
+The rhyme scheme of this sonnet is sonorous and is of AA BB CC DD EE FF GG. It can be said that it is the poetry
+of optimism and hope. The poet is trying to show the idealized existence of Africans, especially Nigerians, in
+the new world of awakening with the assistance of the poem's rhyme pattern. All of the lines and rhyming phrases
+after couplets are linked with the lives of Nigerians and their ideal way of life. This includes realization,
+hope and solidarity. He also wishes for wisdom, liberty, knowledge and joy. His excellent rhyming scheme
+synchronizes with the ideal existence of Nigerians in the world of the awakening age.
